@@ -1,0 +1,15 @@
+## Direkt nach dem Unfall
+- Normale erste Hilfe. Schock ist normal und OK. -> In Sicherheit bringen, hinsetzen, Passanten dazu holen oder direkt 112 wählen.
+- Wenn  der Bauch gegen den Lenker oder so gestoßen ist oder der Kopf den Boden berührt hat -> 112 und Krankenwagen anfordern. Passanten die Verletzungen anzeigen, damit diese zur Not die Infos weiter geben können. (In beiden Fällen kann es zu inneren Blutungen kommen, die zu einer schlagartigen Verschlechterung bis hin zur Ohnmacht führen können, sich aber in der Klinik leicht ausschließen lassen)
+- Wenn ein Krankenwagen benötigt wird 112. Die 110 ist langsam (teilweise musste ich es 6-7 mal klingel lassen, bis abgenommen wird). 110 ist keine Notrufnummer.
+- Wenn man nicht schuldig ist, die Polizei rufen. Dann ist der Unfall aktenkundig und mindestens Ordnungswidrigkeitsverfahren werden eingeleitet. (Oft gegen beide Parteien, bisher wurden aber alle gegen mich eingestellt. Von den Fällen in denen ich es weiß nicht bei meinen Unfallgegnern)
+- Die Polizei wird einen vermutlich fragen, ob man Anzeige wegen fahrlässiger Körperverletzung stellen möchte. Auch wenn die Polizei einen davon ein wenig abbringen möchte ist meiner Meinung nach "Ja" die sinnvollste Antwort. Da das Verfahren vermutlich eh wegen mangelndem öffentlichen Interesse nicht von der Staatsanwaltschaft verfolgt wird, kann man das Ja wieder rückgängig machen. Bisher habe ich meist keine Entscheidung gefällt und dies dann am Tag danach bei der Polizeidienststelle nachgeholt. Den Weg kann man sich so sparen. 
+- zeitnah eigenes Gedächtnisprotokoll des Unfalls anfertigen (z.B. in der Notaufnahme). Versuche das Erstellungsdatum zu sichern (Foto davon per Mail an sich selbst verschicken oder so) [Hat damit jemand Erfahrung?]
+- Auch bei leichten Verletzungen allein schon wegen des Unfallberichts in die Notaufnahme. Ist für den Nachweis der Körperverletzung notwendig und Hilft auch beim Schmerzensgeld.
+- Lass dir den Polizeibericht vorlesen, oder lese ihn selbst. Auch von diesem lohnt sich ein Abschnitt im Gedächtnisprotokoll, denn solange man nicht Beschuldigter ist, kann man den nicht wieder ohne weiteres einsehen. 
+## Im Nachgang
+- Vermutlich bekommt man nach einer Weile (evt. mehrere Monate) Post von der Staatsanwaltschaft, dass das Verfahren wegen mangelndem öffentlichen Interesse auf den Privatklageweg verwiesen und an eine Verwaltungsbehörde abgegeben wird zur Verfolgung der Ordnungswidrigkeiten. Davon hört man nichts mehr. 
+- Jetzt kann man den Privatklageweg bestreiten. 
+- Dafür ist, wenn man die Möglichkeit hat sich damit auseinander zu setzten kein rechtlicher Beistand notwendig. Zumindest bis das Verfahren am Gericht angenommen wurde.
+- Überlege dir warum du dir den Aufwand machst und definiere dir realistische Mindestziele.
+- Lege die Unterlagen gewissenhaft ab.
